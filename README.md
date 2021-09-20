@@ -1,4 +1,4 @@
-- 👋 Hi, I’m WilliamCHA
+- 👋 Hi, I’m CHA
 - 👀 FJCU CSIE 2020 ~ 202x
 - 🌱 CPC
 - 💞️ NISRA
