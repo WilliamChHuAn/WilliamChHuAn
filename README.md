@@ -2,9 +2,10 @@
 
 #### 🏫 FJCU CSIE 2020 ~ current
 
-#### 💼 III 2023 ~ current
+#### 💼 III CSTI intern 2023 ~ current
 
 - **I**nstitute for **I**nformation **I**ndustry
+- **C**yber**s**ecurity **T**echnology **I**nstitute
 
 #### 🖥️ CPC member
 
