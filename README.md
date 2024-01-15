@@ -2,7 +2,9 @@
 
 #### 🏫 FJCU CSIE 2020 ~ current
 
-#### 💼 III CSTI intern 2023 ~ current
+#### 💼 III CSTI intern 2023/07 ~ 2024/01
+
+#### 💼 GSS intern 2024/01 ~ current
 
 #### 🖥️ CPC member
 
