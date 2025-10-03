@@ -1,10 +1,10 @@
 # Hi, I’m CHA 🍵
 
-#### 🏫 FJCU CSIE 2020 ~ current
+#### 🏫 FJCU CSIE
+
+#### 💼 GSS intern 2024/01 ~ 2024/05
 
 #### 💼 III CSTI intern 2023/07 ~ 2024/01
-
-#### 💼 GSS intern 2024/01 ~ current
 
 #### 🖥️ CPC member
 
